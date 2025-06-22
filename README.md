@@ -1,4 +1,4 @@
-![image](image-1.png)
+![alt text](image.png)
 
 # General Info
 
