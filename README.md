@@ -27,5 +27,3 @@ I'm realy into __gothic__, and I enjoy everything connected with it, including _
 > Even now your enemies are getting ahead.
 
 > If you don't like where you are, move. You are not a tree
-
-[def]: https://pin.it/4mwSLnF2D
